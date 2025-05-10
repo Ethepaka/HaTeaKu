@@ -1,0 +1,1 @@
+hateaku license
